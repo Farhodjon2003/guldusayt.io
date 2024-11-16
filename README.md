@@ -1,0 +1,2 @@
+# guldusayt.io
+Guldusaytfarxodjon
